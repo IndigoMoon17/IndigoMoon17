@@ -1,5 +1,5 @@
 ☆ ⸺ *INDIGO* 
-- **ALT NAMES :** Lucas,Ghost,Odysseus
+- **ALT NAMES :** Lucas,Ghost,Odysseus,Chance
 - **NICKNAMES :** Ghostie, Indi, Ody 
 - **PRONOUNS :** He/Them
 - **HOBBIES :** Gaming , Writing, Photography, Music & Reading
