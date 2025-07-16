@@ -1,6 +1,6 @@
 ☆ ⸺ *INDIGO* 
-- **ALT NAMES :** Lucas,Ghost,Odysseus,Chance
-- **NICKNAMES :** Ghostie, Indi, Ody 
+- **ALT NAMES :** Lucas,Ghost,Odysseus,Chance,Telamon
+- **NICKNAMES :** Ghostie, Indi, Ody,Tela
 - **PRONOUNS :** He/Them
 - **HOBBIES :** Gaming , Writing, Photography, Music & Reading
 - **FAVOURITE SONG :** [Rust - No,Really](https://youtu.be/NqKA4Lv-BP4?si=W2B_vWWzJ9jg2MOO)
